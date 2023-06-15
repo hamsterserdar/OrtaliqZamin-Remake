@@ -1,2 +1,2 @@
 # OrtaliqZamin(Remake)
- oynumuz
+ ay sadixli gotu qatiqli oynumuz
